@@ -1,8 +1,7 @@
 - 👋 Hi, I’m lonely
-- 👀 I’m interested in Minecraft and web development
-- 🌱 I’m currently learning Vlang
-- 💞️ I’m looking to collaborate on Minecraft?
-- 💼 I'm looking for an entry level software engineer or web developer job. Hit me up if you're interested in hiring me.
+- 👀 I’m interested in Minecraft and programming with V.
+- 🌱 I’m currently learning Android app development.
+- 💞️ I’m looking to collaborate on Mario Kart :D?
 - 📫 How to reach me adam.oates@criptext.com
 
 Like my repositories? Feel free to donate.<br>
