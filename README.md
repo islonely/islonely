@@ -6,6 +6,9 @@
 - 🕸️ Also tryna make websites for a living; [click me](https://adamoates.me/).
 
 ## How can I get to heaven?
+If you're reading this today it could be because you have loved ones in your life that love and cherish you enough to spend time each day praying for you. How detrimental it is to a mother who truly believes a child they wholly love is on their way to the lake of fire. If not because I love and care about you, please read this for that someone in your life that loves you.
+
+Here's a song about that: [Someone](https://1drv.ms/u/s!AorXoHIFh1NNmvEue75OW0Wr-Lxf_Q?e=3fOHgi)
 ### Realize that you have sinned against God.
 > As it is written, There is none righteous, no, not one:
 >
@@ -30,6 +33,8 @@
 > Likewise, ye younger, submit yourselves unto the elder. Yea, all of you be subject one to another, and be clothed with humility: for God resisteth the proud, and giveth grace to the humble.
 >
 > **1 Peter 5:5**
+
+Here's a song about that: [It's Your Choice](https://1drv.ms/u/s!AorXoHIFh1NNhPpzYSmpQ2IE-Rf-nA?e=AgU1RR)
 ### Know that Jesus loves *you* and died for you because of that love.
  > For when we were yet without strength, in due time Christ died for the ungodly. But God commendeth his love toward us, in that, while we were yet sinners, Christ died for us.
 >
@@ -54,6 +59,8 @@
 > Now then we are ambassadors for Christ, as though God did beseech you by us: we pray you in Christ's stead, be ye reconciled to God. For he hath made him to be sin for us, who knew no sin; that we might be made the righteousness of God in him.
 >
 > **2 Corinthians 5:20-21**
+
+Here's a song about that: [He Gave Himself](https://1drv.ms/u/s!AorXoHIFh1NNmu8Hs3FrBzodNBdG0A?e=Mf2xy3)
 ### By the shedding of His blood, you can be redeemed.
 > Neither by the blood of goats and calves, but by his own blood he entered in once into the holy place, having obtained eternal redemption for us. And almost all things are by the law purged with blood; and without shedding of blood is no remission.
 >
@@ -66,6 +73,8 @@
 > Forasmuch as ye know that ye were not redeemed with corruptible things, as silver and gold, from your vain conversation received by tradition from your fathers; But with the precious blood of Christ, as of a lamb without blemish and without spot:
 >
 > **1 Peter 1:18-19**
+
+Here's a song about that: [The Last Blood](https://1drv.ms/u/s!AorXoHIFh1NNh7gPxMrxrMD7R-WHCg)
 ### Call upon the name of the Lord Jesus Christ.
 > Not by works of righteousness which we have done, but according to his mercy he saved us, by the washing of regeneration, and renewing of the Holy Ghost;
 >
@@ -86,6 +95,10 @@
 > that if thou shalt confess with thy mouth the Lord Jesus, and shalt believe in thine heart that God hath raised him from the dead, thou shalt be saved. For with the heart man believeth unto the righteousness; and with the mouth confession is made unto salvation. For the scripture saith, Whosoever believeth on him shall not be ashamed. For there is no difference between the Jew and the Greek: for the same Lord over all is rich unto all that call upon him. **For whosoever shall call upon the name of the Lord shall be saved.** How then shall they call on him in whom they have not believed? and how shall they believe in him of whom they have not heard? and how shall they hear without a preacher?
 >
 > **Romans 10:9-13**
+
+Here's a song about that: [Just as I Am - I Come Broken](https://1drv.ms/u/s!AorXoHIFh1NNh7ZNGkPymvhgUGEkNA?e=fJ0dKd)
+
+Here's another song about that: [Nothing Greater than Grace](https://1drv.ms/u/s!AorXoHIFh1NNh7ZepJE1ZeGlsXriwg?e=Oc2Hss)
 ### What now?
 Praise the Lord! If you have any questions, don't hesitate to ask me. Some people will teach that you can lose your salvation by choosing to reject Jesus after you have been saved. The Bible teaches otherwise. Imagine an envelope that's sealed with a wax seal in ye olden days. The only way to open that envelope would be by breaking the seal or breaking the envelope. The Bible says we're sealed by the Holy Spirit. To put it bluntly: if you think you have he power to break the seal that is the Holy Spirit, then you are delusional. We can destroy the body which would be comparable to the envelope. But our soul, the letter inside, remains perfectly in tact.
 > In whom ye also trusted, after that ye heard the word of truth, the gospel of your salvation: in whom also after that ye believed, ye were sealed with that holy Spirit of promise,
@@ -96,3 +109,12 @@ Some will also say that if you sin too much as a Christian, then you can lose yo
 > For if we sin wilfully after that we have received the knowledge of the truth, there remaineth no more sacrifice for sins,
 >
 > **Hebrews 10:26**
+
+> But where sin abounded, grace did much more abound:
+>
+> **Romans 5:20b**
+
+That is not to say that a Christian should sin. In follow up to Romans 5:20, Paul also wrote:
+> What shall we say then? Shall we continue in sin, that grace may abound? God forbid. How shall we, that are dead to sin, live any longer therein?
+>
+> **Romans 6:1-2**
