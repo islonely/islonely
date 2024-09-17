@@ -2,8 +2,7 @@
 - 👀 I’m interested in [V](https://vlang.io/) and Christianity.
 - 🌱 I’m currently learning about opengl and html parsers.
 - 🎮 Wanna play some Mario Kart?
-- 📫 How to reach me adam.oates@criptext.com
-- 🕸️ Also tryna make websites for a living; [click me](https://adamoates.me/).
+- 📫 How to reach me adamsoates@pm.me
 
 ## How can I get to heaven?
 If you're reading this today it could be because you have loved ones in your life that love and cherish you enough to spend time each day praying for you. How detrimental it is to a mother who truly believes a child they wholly love is on their way to the lake of fire. If not because I love and care about you, please read this for that someone in your life that loves you.
